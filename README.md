@@ -1,3 +1,3 @@
 - 👋 Salutations...
-- 👀 Vient parler sur Discord ! `ALEXODE | YT#1116`
+- 👀 Vient parler sur Discord ! `alexode_`
 - ✔  Je m'intéresse à tout !
